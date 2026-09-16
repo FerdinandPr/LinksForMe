@@ -4,3 +4,8 @@
 - https://www.landesrecht-bw.de/bsbw/document/jlr-NNLBW00007D0E
 - https://shop-lfvbw.de/
 - https://lfvbw.de/
+
+- ## Obsidian als Wissenspeicher
+- https://www.youtube.com/results?search_query=obsidian+german
+- https://www.youtube.com/watch?v=svqJ8BUh8mU&list=PLzp2ZLXTBP0uMYXsnxVjJMrtWJ9JIncPC
+- https://www.youtube.com/watch?v=z4AbijUCoKU
